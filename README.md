@@ -1,1 +1,1 @@
-[https://ccsopractice.space](ccsopractice.space)
+[ccsopractice.space](https://ccsopractice.space)
